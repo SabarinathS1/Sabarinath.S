@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Sabarinath S
+- 👀 I’m interested in Electronics
+- 🌱 I’m currently learning Engineering
+- 📫 How to reach me - sabarinathkottamal123gmail.com
+- ⚡ Fun fact: failure 
